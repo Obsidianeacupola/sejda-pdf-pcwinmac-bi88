@@ -1,4 +1,4 @@
-# 
+# Atualizado Sejda PDF fluxo de trabalho para Mac OS | Inteligente Sejda PDF fluxo de trabalho para PC Windows. Com acesso offline e suporte de auditoria — otimizado para máximo desempenho em cada plataforma.
 
 
 
